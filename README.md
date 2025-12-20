@@ -47,7 +47,7 @@ I have included my certifications, including Capture The Flag challenges, ethica
 You can contact me through:
 
 - **Email:** omid.qazikhil2020@gmail.com  
-- **Phone:** +93766985757  
+- **Facebook:** [Omid hiMat Qazikhil](https://www.facebook.com/omid.himat.qazikhil)  
 - **LinkedIn:** [Omid Qazi Khil](https://www.linkedin.com/in/omid-qazi-khil)  
 
 ---
